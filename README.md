@@ -1,5 +1,5 @@
 
-> Open this page at [https://yasha-grachova.github.io/glitch/](https://yasha-grachova.github.io/glitch/)
+> Want play?. [Click here.](https://safiox.github.io/glitch/)
 
 ## Use as Extension
 
